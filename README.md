@@ -4,4 +4,3 @@
 喜欢玩minecraft已经3年
 擅长的计算机语言：python,C++,Html(也许)
 喜爱研究minecraft及其衍生物
-喜欢看茹梓晋打林军犬
